@@ -1,0 +1,1 @@
+Essa Pasta Vai Servir Para Colocar As Imagens Que Serão Usadas Nesse Trabalho.
